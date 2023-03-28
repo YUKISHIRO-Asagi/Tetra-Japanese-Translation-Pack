@@ -1,0 +1,1 @@
+"# Tetra-Japanese-Translation-Pack" 
